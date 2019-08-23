@@ -9,7 +9,7 @@ Having graduated however, with a job lined up, the window of opportunity to make
 When I first started thinking of making this trip into reality, it was a lofty idea with no clear cut itinerary, just a simple roadtrip from Phoenix, AZ to Squamish, B.C., Canada, with pitstops along the way to climb and see friends. The seeing friends, actually is quite necessary because I am quite a lonely person, so any social interaction is nice. Ideally I would have wanted to do this with other person, but to ask or find someone who lives in Arizona and resides in Washington, that climbs and is willing to partake in this endeavor is abysmally small. Thus, this trip became a solo one.
 
 ## Getting a Car
-The first and most pressing order of business was to get a car that could one support this trip and furthermore, live up to my lifestyle. Something that could truly hold up to the multifarious terrains I would be traversing on this roadtrip but also would be inevitably encountering in the Pacific Northwest (PNW). This lead to very obvious type of car that I would be seeking, a large, AWD or 4WD, SUV.
+The first and most pressing order of business was to get a car that could one support this trip and furthermore, live up to my lifestyle. Something that could truly hold up to the multifarious terrains I would be traversing on this roadtrip but also would be inevitably encountering in the Pacific Northwest (PNW). This led to very obvious type of car that I would be seeking, a large, AWD or 4WD, SUV.
 
 Why an SUV and not a truck? The answer is not actually gas mileage, anything that is AWD/4WD will have just as horrible gas mileage as say a Toyota Tacoma, but becuse it is more emblematic of a PNW vibe and not as daunting. Call me a bandwagonner if you must, but hey, I like the appeal.
 
@@ -28,3 +28,25 @@ Sadly this first dealership exploring and trying out was uneventful, or so I tho
 I don't want to bore you with all the other dealers we went to, but here is the TLDR. We went to 3 more dealerships to try out Foresters only to realize, it drove, to be frank, uncomfortably. I wouldn't want to spend hours driving in this car and probably neither would you. Thus, I would be buying this beautiful 2013 Lexus RX350.
 
 ## Buying stuff
+
+There are a number of items that are necessary, from food to climbing gear, and of course camping/car camping gear. To begin, lets start with camping and roadtrip equipment.
+
+### Roadtrip Equipment
+
+The number one item that you are going to need for car camping is obviously a sleeping bag. But a sleeping bag alone is not going to provide adequate and comfortable sleep, thus I had, from pervious camping trips, a sleeping pad. This is honestly a life saver. Even though it only adds a couple of inches off the ground, that keeps you warm and acts essentially as a mattress.
+
+The next item that I thought would be necessary is a 7 gallon water tank. You can pick up these from REI, Walmart, or any general store that has an outdoor section. My thought process behind this is that I'm not entirely sure how often I am going to be able to get fresh filtered and or tap water, so when I would come across a place that had tap water I would refill the tank. Also this water would also allow me to get a rag and take a dirtbag shower. Also this water tank would be able to last me for about a week if rationed well, which is more than enough and sfficient for worst case scenario.
+
+The other item that I found very useful is a crank light, that is one of those lights that don't need batteries. This became useful when i realized that at night I don't want to be using the car battery to keep the car lights on, so using the crank light provided lighting without using any electricity!
+
+Next is a DC Output to 200W Inverter with AC outlets and usb charging. This inverter is wonderful because it allows me to charge not only my laptop, but other equipement while charging my phone. Furthermore, it runs off the engine, make sure you don't try and power this off the battery or you will drain your battery. This was all for a nice price of 25 dollars.
+
+Next was the classic no rinse shampoo and the dude wipes/sea to summit bathing wipes. Because I will be without a place to truly shower, it's nice to have something that will keep me sanitary to some degree.
+
+Finally, the most important thing, as this is a climbing trip is all my climbing stuff. 2 Crashpads, my sport rack and etc.
+
+I had the idea of adding a GPS located dash camp so that my parents could know where I am, however, I forgot to attach it to the car. I do think this is a great ease of mind item, that and some sort of weapon.
+
+## FOOD
+
+Honestly all I did was go to Costco and buy food.
